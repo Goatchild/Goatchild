@@ -1,5 +1,5 @@
 
 ![vox-hazbin-hotel](https://github.com/user-attachments/assets/54960c34-0e89-4164-ab97-9d04f2125c52)
 
-TRUST M̶E̶  US WITH YOUR EVERYTHING
+TRUST US WITH YOUR EVERYTHING
 
