@@ -1,5 +1,6 @@
 
-![IMG_1811](https://github.com/user-attachments/assets/ba9ace03-8946-48c2-afac-5841acbd96ec)
+![picmix com_13354586](https://github.com/user-attachments/assets/a659485d-2a80-4ebd-8f82-06a8959d88e9)
+
 
 
 
